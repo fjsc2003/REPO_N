@@ -1,1 +1,0 @@
-Escrevi: fjscarvalho@gmail.com
